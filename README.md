@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @merelina
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...[New Microsoft Office Word Document apa.pdf](https://github.com/merelina/merelina/files/12330767/New.Microsoft.Office.Word.Document.apa.pdf)
-
+- 💞️ I’m looking to collaborate on ...https://bghdgih.bustymeets.com/s/63e3cd01cbc51
 - 📫 How to reach me ...
 
 <!---
